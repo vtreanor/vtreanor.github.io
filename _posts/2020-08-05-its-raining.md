@@ -14,4 +14,4 @@ less likely that I will get to them.
 So, it is time to think up some alternatives. If it's raining then it seems logical to
 - either do some stuff indoors or
 - do outdoor stuff that is not affected by the rain.
-- abandon all and go back to bed.
+- abandon all and go back to bed. Just need a nice blonde.
